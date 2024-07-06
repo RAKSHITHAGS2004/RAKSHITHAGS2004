@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @RAKSHITHA GS
+- 👋 Hi, I’m @RAKSHITHA G S
   
 
 <!---
